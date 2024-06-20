@@ -1,5 +1,5 @@
 - 👋 Hi there! I’m Selin
-- I'm currently a 2. grade Bioengineering student with enthusiasm for cybersecurity
+- I'm currently a 3. grade Bioengineering student with enthusiasm for cybersecurity
 - 🌱 I’m currently learning Python!
 
 - 📫 How to reach me:
