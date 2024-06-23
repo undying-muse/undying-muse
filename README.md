@@ -4,9 +4,9 @@
 
 - 📫 How to reach me:
 
-  LinkedIn: http://linkedin.com/in/selin-c-0a8aa1275
+  LinkedIn: 
 
-  Medium: https://medium.com/@selinzeynepcaf
+  Medium: 
 
   Instagram: https://www.instagram.com/undying.muse?igsh=d21la2luenVoN3U2&utm_source=qr
  
